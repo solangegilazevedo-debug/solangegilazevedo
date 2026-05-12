@@ -5,7 +5,7 @@ Alicersada em minha ancestralidade, pesquiso tecnologias afroindigena e atuo na 
 
 solangegilazevedo
 
-🔭 Atualmente, eu trabalho em Nome-da-empresa Conecta e Impacta Soluções LTDA e Impacta Pretas .
+🔭 Atualmente, eu trabalho na Conecta e Impacta Soluções LTDA e Impacta Pretas.
 
 🌱 Meus estudos atuais focam em Impacto, Inovação Social, Tecnologias ancestrais, Sustentabilidade e Criatividade. 
 
