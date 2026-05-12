@@ -1,6 +1,6 @@
 
-Olá 👋, Eu sou {Solange Gil de Azevedo}
-{Pesquisadora e Empreendedora Social} residente em {Maringá-PR}/{Brasil}.
+Olá 👋, Eu sou Solange Gil de Azevedo
+Pesquisadora e Empreendedora Socia residente em {Maringá-PR}/{Brasil}.
 {Mulher negra indígena, pesquisadora de tecnologias afrodiaspóricas e empreendedora social, atuo na criação de soluções que conectam ancestralidade, inovação e impacto. Especialista em ESG, sustentabilidade, diversidade e inclusão, desenvolvo estratégias para impulsionar projetos, pessoas e negócios com propósito. Minha trajetória une criatividade, comunicação e pensamento estratégico para transformar ideias em iniciativas relevantes e sustentáveis. Acredito no poder das conexões, das narrativas e das tecnologias sociais para gerar futuros mais plurais e regenerativos.}
 
 solangegilazevedo
